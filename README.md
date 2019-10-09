@@ -7,4 +7,4 @@ I said - "Oh yeah? - I want a second opinion!
 He said - "Alright...you're ugly too"
 Ok? alright I tell you...I don't get no respect, no respect at all.
 
-This hotel tht I'm staying in right now, I don't wanna say they're a bad hotel but - THEY stole MY towel!!
+This hotel that I'm staying in right now, I don't wanna say they're a bad hotel but - THEY stole MY towel!!
